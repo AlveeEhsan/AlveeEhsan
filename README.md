@@ -1,6 +1,6 @@
 # 🤹‍♂️ Alvee Ehsan
 
-**`Digital Craftsman (Developer/Tech-Enthusiast/Learner)`**
+**`Aspiring Developer | Tech-Enthusiast | Learner)`**
 
 
 
