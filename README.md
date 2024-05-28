@@ -1,6 +1,6 @@
 # 🤹‍♂️ Alvee Ehsan
 
-**`Aspiring Developer | Tech-Enthusiast | Learner`**
+**`Aspiring Developer | Tech-Enthusiast | Researcher`**
 
 
 
