@@ -2,7 +2,7 @@
 
 **`Aspiring Developer | Tech-Enthusiast | Researcher`**
 
-![Header](./[banner.png])
+![Header](banner.png)
 
 
 ---
